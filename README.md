@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @pmgokul7 
 - 👀 I’m interested in learning something new 
-- 🌱 I’m currently learning something new
+- 🌱 I’m currently doing bca @ ses Sreekandapuram
 - 📫 How to reach me @ https://t.me/pmgokul7
 
 <!---
